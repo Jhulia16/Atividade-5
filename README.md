@@ -5,4 +5,4 @@
 *Além de melhorar nossas oportunidades de carreira, o estudo também enriquece nossa vida de muitas outras maneiras. Nos torna mais criativos, mais adaptáveis e mais capazes de lidar com situações complexas. Nos ajuda a desenvolver uma mentalidade de crescimento, onde vemos os desafios como oportunidades de aprendizado e crescimento pessoal. (comando para escrever itálico*
 
 Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras inimagináveis
-![](https://media.tenor.com/mkyTkSfGvFEAAAAM/cool-fun.gif)
+![](<div class="tenor-gif-embed" data-postid="13282441872748349107" data-share-method="host" data-aspect-ratio="0.801205" data-width="100%"><a href="https://tenor.com/view/dog-dog-with-butterfly-on-nose-dog-with-butterfly-butterfly-gif-13282441872748349107">Dog Dog With Butterfly On Nose GIF</a>from <a href="https://tenor.com/search/dog-gifs">Dog GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
