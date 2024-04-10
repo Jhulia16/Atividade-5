@@ -6,3 +6,6 @@
 
 Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras inimagináveis
 ![](https://media.tenor.com/mkyTkSfGvFEAAAAM/cool-fun.gif)
+
+comando de fórmula 
+$\sqrt25$
