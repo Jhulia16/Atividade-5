@@ -11,3 +11,4 @@ comando de fórmula
 $\sqrt25$
 $\sqrt36=6$
 $\sqrt{3x+8}-1$
+$\frac{2}{5}$
