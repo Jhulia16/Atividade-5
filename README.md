@@ -9,3 +9,4 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significativame
 
 comando de fórmula 
 $\sqrt25$
+$\sqrt36=6$
